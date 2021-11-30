@@ -52,7 +52,7 @@
 
 
 ## 🧚‍♀️හදන්න ඕන්නම් මෙතනින් ඔබාම්💫
-[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/sasmithasevidu/Queen-alexa-deshan-official-)
+[![මාව ඔබන්න](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/sasmithasevidu/Queen-alexa-deshan-official-)
 
 
 ## 👨‍💻 Sponser & Supporter 👨‍💻
