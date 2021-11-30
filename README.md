@@ -22,7 +22,10 @@
 
 
 
-### 🧚‍♀️ALEXA TEAM💫
+### 🧚‍♀️DESHAN TEAM💫
+
+
+###🧞‍♀️NEW TEAM💫
 
 
 👨‍💻  CK shan bro *[ Owner ]*
@@ -49,7 +52,7 @@
 
 
 ## 🧚‍♀️හදන්න ඕන්නම් මෙතනින් ඔබාම්💫
-[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/chamodya-official/Queen-Alexa)
+[![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/sasmithasevidu/Queen-alexa-deshan-official-)
 
 
 ## 👨‍💻 Sponser & Supporter 👨‍💻
