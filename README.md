@@ -24,8 +24,6 @@
 ### 🧚‍♀️DESHAN TEAM💫
 
 
-###🧞‍♀️NEW TEAM💫
-
 
 👨‍💻  CK shan bro *[ Owner ]*
 
@@ -42,7 +40,7 @@
 
 👨‍💻 CK shan bro   [  helping group ]
 
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-blue.svg)](https://Wa.me/+94702256963)
+[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-blue.svg)](https://Wa.me/+94786825798)
 
 **╭──⦁ Simple method ⦁──╮**
 
@@ -127,7 +125,7 @@ Group owner , Supporter , bug fixer |
 
 
 
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazon-Plugins-red.svg)](https://chat.whatsapp.com/JJs2iwfF0VKL3IWrIyAT)
+[![come to the support group ](https://img.shields.io/badge/Amazon-Plugins-red.svg)](https://chat.whatsapp.com/JJs2iwfF0VKL3IWrIyAT)
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support01-blue.svg)](https://chat.whatsapp.com/GTgqgMTo7FoJ1GijsX)
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support02-blue.svg)](https://chat.whatsapp.com/K4QouGNrNcm1igDaYiLj)
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support03-blue.svg)](https://chat.whatsapp.com/DSX2aegJpVRG3IBa48)
