@@ -52,7 +52,7 @@
 
 
 ## 🧚‍♀️හදන්න ඕන්නම් මෙතනින් ඔබාම්💫
-🧚‍♀️හදන ගමන් ඉන්නේ💫(https://heroku.com/deploy?template=https://github.com/sasmithasevidu/Queen-alexa-deshan-official-)
+හදන ගමන් ඉන්නේ(https://heroku.com/deploy?template=https://github.com/sasmithasevidu/Queen-alexa-deshan-official-)
 
 
 ## 👨‍💻 Sponser & Supporter 👨‍💻
