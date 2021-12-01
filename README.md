@@ -129,12 +129,12 @@ Group owner , Supporter , bug fixer |
 ![logo](https://telegra.ph/file/d7f1c8ec3b84655d5e268.jpg)
 
 
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazon-Plugins-red.svg)](https://chat.whatsapp.com/JJs2iwfF0VKL3IWrIyr7AT)
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support01-blue.svg)](https://chat.whatsapp.com/GTgqgMTo7FoJ1GqdijshsX)
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support02-blue.svg)](https://chat.whatsapp.com/K4QouGNrNcm1iARgDaYiLj)
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support03-blue.svg)](https://chat.whatsapp.com/DSX2aegJpVRG3cWIUlBa48)
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazome-News01-purple.svg)](https://chat.whatsapp.com/LuLTEKm22fp8gv4ltCmKMo)
-[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-News02-purple.svg)](https://chat.whatsapp.com/LVykTrmNEU98AktU0eBNNq)
+[![Find On Whatsapp ](https://img.shields.io/badge/Amazon-Plugins-red.svg)](https://chat.whatsapp.com/JJs2iwfF0VKL3IWrIyAT)
+[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support01-blue.svg)](https://chat.whatsapp.com/GTgqgMTo7FoJ1GijsX)
+[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support02-blue.svg)](https://chat.whatsapp.com/K4QouGNrNcm1igDaYiLj)
+[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-Support03-blue.svg)](https://chat.whatsapp.com/DSX2aegJpVRG3IBa48)
+[![Find On Whatsapp ](https://img.shields.io/badge/Amazome-News01-purple.svg)](https://chat.whatsapp.com/LuLTEKm22fp8gltCmKMo)
+[![Find On Whatsapp ](https://img.shields.io/badge/Amazone-News02-purple.svg)](https://chat.whatsapp.com/LVykTrmNEU98AktU0NNq)
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone
 
 
