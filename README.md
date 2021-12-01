@@ -27,7 +27,7 @@
 
 👨‍💻  CK shan bro *[ Owner ]*
 
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-red.svg)](https://Wa.me/+94702256963)
+[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-red.svg)](https://Wa.me/+94786825798)
 
 
 👨‍💻  Chamod bro [ texting ]
