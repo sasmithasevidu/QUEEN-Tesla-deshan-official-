@@ -78,9 +78,9 @@ Group owner , Supporter , bug fixer |
 
 
 
-Support group (coming soon)
+🧚‍♀️Support group🧚‍♀️ (coming soon)
 
-Bot group
+🧚‍♀️Bot group💫
 [![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-red.svg)](https://chat.whatsapp.com/BRooILzZOIbFbVcOjDRpU5)
 
 
