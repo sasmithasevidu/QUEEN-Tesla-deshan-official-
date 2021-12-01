@@ -1,4 +1,3 @@
-
 ##  ⦁═𝗤𝗨𝗘𝗘𝗡 👸 𝗔𝗟𝗘𝗫𝗔═⦁
 
 
@@ -126,7 +125,6 @@ Bot owner , Bug fixer , module fixer|
 [Ck shan_Broh-TeenuhX](https://github.com/TOXIC-DEVIL)  |
 Group owner , Supporter , bug fixer |
 
-![logo](https://telegra.ph/file/d7f1c8ec3b84655d5e268.jpg)
 
 
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazon-Plugins-red.svg)](https://chat.whatsapp.com/JJs2iwfF0VKL3IWrIyAT)
