@@ -1,4 +1,4 @@
-##  ⦁═𝗤𝗨𝗘𝗘𝗡 👸 𝗔𝗟𝗘𝗫𝗔═⦁
+##  ⦁═DESHAN 👸 QUEEN 🧜‍♀️ 𝗔𝗟𝗘𝗫𝗔═⦁
 
 
     Queen alexa is the whatsapp bot project.
